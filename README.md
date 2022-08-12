@@ -9,6 +9,7 @@ PRs welcome- he has been stalking and harassing women for nearly ten years, I'm 
 - upload summary of abusive behaviors
 - upload restraining order
 - link social media accounts
+- add list of known associates
 - buy domain name and link it to site
 
 
